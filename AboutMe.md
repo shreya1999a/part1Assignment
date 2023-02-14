@@ -1,2 +1,3 @@
 
-This is shreya reddy lethakula .
+This is shreya reddy lethakula . Im doing masters in computer science  
+
